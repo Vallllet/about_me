@@ -6,7 +6,7 @@ I'm 22 years old and I'm continiously trying to
 find my place in this _World_
 
 ### achievments at now:
-- golden metal at school (11 grades)
+- golden medal at school (11 grades)
 - 100/100 at chemistry **"ЕГЭ"**
 - 3 and a half years spent on medical university
 ### and then goes not really achievments, but this is my path:
